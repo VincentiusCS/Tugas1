@@ -1,1 +1,2 @@
-# Tugas1
+# Link Video
+https://youtu.be/CDYNuUEAqhw
